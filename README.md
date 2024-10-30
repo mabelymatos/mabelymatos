@@ -7,6 +7,7 @@ Meu nome é Mabely Isys Batista Matos.
   * Trabalho como manicure e nail designer, sendo especialista em fibra de vidro 💅
   * Gosto de viajar e conhecer novos lugares no meu tempo livre ✈️🌍
   * Pretendo me formar em direito e crescer o meu studio
+  * Nas minhas horas vagas gosto de navegar pelo [Tiktok](https://www.tiktok.com/pt-BR/)
 
 #### Você pode entrar em contato comigo
  mabely.matos@escola.pr.gov.br
