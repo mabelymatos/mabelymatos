@@ -15,8 +15,7 @@ Meu nome é Mabely Isys Batista Matos.
  
  
 ![](https://github.com/user-attachments/assets/004c60c1-8444-45c2-919d-3c56153b1bea)
-![](https://github.com/user-attachments/assets/0a83305f-7b2d-4ca7-a2a7-896f6b507ffb)
-
+![](https://tenor.com/pt-BR/view/whatever-little-girl-drinking-too-cool-chilling-yeah-whatever-gif-27534207)
   
 
 
