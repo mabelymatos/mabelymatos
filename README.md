@@ -8,12 +8,12 @@ Meu nome é Mabely Isys Batista Matos.
   * Gosto de viajar e conhecer novos lugares no meu tempo livre ✈️🌍
   * Pretendo me formar em direito e crescer o meu studio
 
-#### Você pode entrar em contato comigo por aqui:
+#### Você pode entrar em contato comigo
  mabely.matos@escola.pr.gov.br
 
  
  
-![](![image](https://github.com/user-attachments/assets/3bd7007c-e705-4ca3-8bf5-45f20dcbadf8)
+![](![image](https://github.com/user-attachments/assets/004c60c1-8444-45c2-919d-3c56153b1bea)
 
   
 
