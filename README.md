@@ -12,10 +12,8 @@ Meu nome é Mabely Isys Batista Matos.
 #### Você pode entrar em contato comigo
  mabely.matos@escola.pr.gov.br
 
- 
- 
-![](https://github.com/user-attachments/assets/004c60c1-8444-45c2-919d-3c56153b1bea)
-
+![](https://media.tenor.com/350JdIwQ84AAAAAM/skull.gif)
+![](https://media.tenor.com/8BUHgHZr_9AAAAAM/claire-dancing.gif)
 
 
 
